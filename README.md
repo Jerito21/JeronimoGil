@@ -63,6 +63,4 @@ Actualmente formo parte de un **proyecto de psicología** que utiliza inteligenc
 
 ---
 
-![Foto personal](https://www.losreplicantes.com/images/photoday/1000/1163/c.jpg)
-
-_Ya no veas mi perfil, chao_
+_Adioooooooo
