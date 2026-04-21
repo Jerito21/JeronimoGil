@@ -44,7 +44,6 @@ También tengo conocimientos en el área de **producción musical**, donde aplic
   <img src="https://media.tenor.com/9m6sXdq-wFkAAAAe/fl-studio-21-logo.png" height="40" alt="FL Studio" />
 </div>
 
-🎵 Mi canción favorita: **"Goteo" - Duki**  
 🎤 Me encanta escribir letras, explorar sonidos y expresar ideas a través de la música.
 
 ---
@@ -58,7 +57,6 @@ Actualmente formo parte de un **proyecto de psicología** que utiliza inteligenc
 ## 📫 ¿Quieres contactarme?
 
 - 📧 **Correo:** jgil5270@gmail.com  
-- 💼 **LinkedIn:** [Visítame aquí](https://www.linkedin.com)  
 - 🖥️ **GitHub:** Puedes escribirme directamente desde aquí
 
 ---
